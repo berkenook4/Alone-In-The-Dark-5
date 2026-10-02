@@ -217,4 +217,4 @@ Alone in the Dark 5 is the full free version, offering all features and updates 
 Don’t miss out on the chilling adventure of Alone in the Dark 5. **Download now and dive into the horror!**
 
 ---
-**Last updated:** 2026-10-02 18:53:13 UTC
+**Last updated:** 2026-10-02 22:45:21 UTC
